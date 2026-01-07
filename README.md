@@ -1,0 +1,1 @@
+# An-lise-de-Tend-ncias-em-An-ncios-do-Mercado-Livre
